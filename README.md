@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @LasseKnogo
-- 👀 I’m interested in balls
-- 🌱 I’m currently learning penor
-- 💞️ I’m looking to collaborate on sexing
-- 📫 How to reach me private snap ;)
+- 👀 I’m interested in Forre
+- 🌱 I’m currently learning 90s
+- 💞️ I’m looking to collaborate on Duos
+- 📫 How to reach me Epic Games
 
 <!---
 LasseKnogo/LasseKnogo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
